@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Bayraa1204
-- 👀 I’m interested in Games
+- 👀 I’m interested in Anime
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on gaming
 - 📫 How to reach me My gmail: Bayraasworldchinerdene@gmail.com
